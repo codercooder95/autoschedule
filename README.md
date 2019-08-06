@@ -1,3 +1,5 @@
 # autoschedule
 coding autoschedule app
-dasdasdasdasd
+Kore4e govor9 9 delayu changes
+
+
